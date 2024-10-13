@@ -5,8 +5,6 @@
 
 - 💬 Ask me about **Python3**
 
-- 📫 How to reach me **pfjalali@ucsc.edu**
-
 - 📄 Know about my experiences [https://parhuam.com/](https://parhuam.com/)
 
 - ⚡ Fun fact **I eat pancakes🥞 with my hands, it's just bread!**
